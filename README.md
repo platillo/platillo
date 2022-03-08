@@ -5,7 +5,7 @@ platillo is just a virtual character I created in order to mask my identity for 
 
 
 #### Social Media
- - [YouTube](https://youtube.com/u/platillo)
+ - [YouTube](https://youtube.com/c/platillo)
  - [Twitch](https://twitch.tv/platillolive)
 
 
